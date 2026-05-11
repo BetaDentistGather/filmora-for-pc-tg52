@@ -1,4 +1,4 @@
-# 
+# Filmora for PC | Filmora for Windows exclusive Script: video-stabilization & transition-effects offers the most advanced Filmora for PC | Filmora for Windows script, with
 
 
 
